@@ -1,1 +1,3 @@
-*Ugh, welcome to Gazzette! We very smart with rocks and fire!*
+*Ugh, Gazzette welcome! We super smart with 🔥 and 🪨!*
+
+Stanford clues?
